@@ -1,33 +1,57 @@
 ─────────────────────────────────────────────────────────────────────────────────────────
 ## 🎮 YouTube Gaming Videos | Channels: W1ndz / MoreW1ndz / W1ndzIRL
-
+🇬🇷
 ─────────────────────────────────────────────────────────────────────────────────────────
   ## 📱 [Youtube Channel - W1ndz] -> https://www.youtube.com/@W1ndzOfficial
   
 - 🔗 [Απλά Φέρσου Φυσιολογικά!] -> (https://youtu.be/3ft_zTHY0LM?si=Yi7fQfHw7RckpCJL)
+[Απλά Φέρσου Φυσιολογικά!]
 - 🔗 [Δοκίμασα Games Με Χάλια Κριτικές] -> (https://youtu.be/MypRkK6CQC0?si=GR-iSnbTvwqZi3ei)
+[Δοκίμασα Games Με Χάλια Κριτικές]
 - 🔗 [Έπαιξα ΌΛΑ Τα Backrooms Games!] -> (https://youtu.be/POeCkgRjaMw?si=al5XVK6aZb5Wh8Ny)
+[Έπαιξα ΌΛΑ Τα Backrooms Games!]
 - 🔗 [ΠΑΓΙΔΕΥΤΗΚΑ ΣΤΑ BACKROOMS ΤΟΥ FORTNITE!] -> (https://youtu.be/tCqorjSPocY?si=SZ6Q5nYhn4LKdYXK)
+[ΠΑΓΙΔΕΥΤΗΚΑ ΣΤΑ BACKROOMS ΤΟΥ FORTNITE!]
 - 🔗 [Δοκιμάζω Viral TikTok Minecraft Lifehacks!] -> (https://youtu.be/WK0tzh1dImI?si=pWTCBi0tZEjZnuHo)
+[Δοκιμάζω Viral TikTok Minecraft Lifehacks!]
 - 🔗 [Τα Πιο Περίεργα Minecraft Βίντεο] -> (https://youtu.be/6P_kLzZqAp0?si=r1D09SIpuiUmuwu2)
-- 🔗 [ΕΠΑΙΞΑ ΤΑ ΠΙΟ ΤΡΟΜΑΚΤΙΚΑ MAP ΤΟΥ FORTNITE!!] -> (https://youtu.be/0jm-0W5X2X8?si=KOVeQ6_PKfX2Yz7x) 
+[Τα Πιο Περίεργα Minecraft Βίντεο]
+- 🔗 [ΕΠΑΙΞΑ ΤΑ ΠΙΟ ΤΡΟΜΑΚΤΙΚΑ MAP ΤΟΥ FORTNITE!!] -> (https://youtu.be/0jm-0W5X2X8?si=KOVeQ6_PKfX2Yz7x)
+[ΕΠΑΙΞΑ ΤΑ ΠΙΟ ΤΡΟΜΑΚΤΙΚΑ MAP ΤΟΥ FORTNITE!!]
 - 🔗 [Δοκίμασα Games Που Κοστίζουν 1€!] -> (https://youtu.be/G2zuCjWWQWI?si=jp5_s5fGMmQQ2gwB)
+[Δοκίμασα Games Που Κοστίζουν 1€!]
 - 🔗 [Ο ΠΙΟ ΣΠΑΣΜΕΝΟΣ ΡΟΛΟΣ ΣΤΟ AMONG US!] -> (https://youtu.be/7tKvaG67PH4?si=07SWsaL2862PIXeV)
+[Ο ΠΙΟ ΣΠΑΣΜΕΝΟΣ ΡΟΛΟΣ ΣΤΟ AMONG US!]
 - 🔗 [Η FERRARI ΤΩΝ 50.000.000$ ΕΙΝΑΙ ΑΠΟ ΑΛΛΟ ΠΛΑΝΗΤΗ!] -> (https://youtu.be/5Iw76Y1NkSw?si=3dn-jui3vq41tGMu)
+[Η FERRARI ΤΩΝ 50.000.000$ ΕΙΝΑΙ ΑΠΟ ΑΛΛΟ ΠΛΑΝΗΤΗ!]
 - 🔗 [Δοκίμασα Scam Games!] -> (https://youtu.be/CZI8ollYryA?si=Fl410nHWhz0Ai_Rm)
+[Δοκίμασα Scam Games!]
 - 🔗 [Έπαιξα Horror Games Στις 3:00 Το Βράδυ!] -> (https://youtu.be/sBfy6b_tzRE?si=bmrTOzjuPTh6t623)
+[Έπαιξα Horror Games Στις 3:00 Το Βράδυ!]
 - 🔗 [Εφτιαξα Τον Ιο Του OHIO MEMES Στην Γη!] -> (https://youtu.be/Y22EHHxe1Zs?si=v61waQoYADne_rML)
+[Εφτιαξα Τον Ιο Του OHIO MEMES Στην Γη!] 
 - 🔗 [Δοκίμασα 18+ Games!] -> (https://youtu.be/qy7MtmucZls?si=gl16vNVisp0WRfVL)
+[Δοκίμασα 18+ Games!]
 - 🔗 [ΒΑΘΜΟΛΟΓΩ ΟΛΑ ΤΑ SPECIAL SKINS ΤΟΥ STUMBLE GUYS!] -> (https://youtu.be/wjKgqO-dTqI?si=vCAM_KeJByiUAevG)
+[ΒΑΘΜΟΛΟΓΩ ΟΛΑ ΤΑ SPECIAL SKINS ΤΟΥ STUMBLE GUYS!]
 - 🔗 [Έπαιξα ΟΛΑ Τα Backrooms Games #2] -> (https://youtu.be/jfAE0amedYk?si=cZENNzsd41xm6KKr)
+[Έπαιξα ΟΛΑ Τα Backrooms Games #2]
 - 🔗 [Δοκίμασα Κακά Simulator Games!] -> (https://youtu.be/ACrNSmYo50k?si=33VusuUaWOPyvbx4)
+[Δοκίμασα Κακά Simulator Games!]
 - 🔗 [Τα Πιο Περίεργα Minecraft Βίντεο] -> (https://youtu.be/6P_kLzZqAp0?si=r1D09SIpuiUmuwu2)
+[Τα Πιο Περίεργα Minecraft Βίντεο]
 - 🔗 [ΕΤΥΧΑ ΤΑ ΚΑΛΥΤΕΡΑ SKINS ΣΤΟ ΝΕΟ STUMBLE PASS!!] -> (https://youtu.be/bLDGxY4BIz8?si=QmNqQ8DDpn3WIzL0)
+[ΕΤΥΧΑ ΤΑ ΚΑΛΥΤΕΡΑ SKINS ΣΤΟ ΝΕΟ STUMBLE PASS!!]
 - 🔗 [Τερματίζω Το Backrooms: Expedition! (FULL GAME)] -> (https://youtu.be/TieCz-ctd1U?si=CTmAYszz7uZMT_g9)
+[Τερματίζω Το Backrooms: Expedition! (FULL GAME)]
 - 🔗 [Τερματίζω Όλα Τα Granny! (FULL GAMES)] -> (https://youtu.be/Bk_euGeUhfQ?si=OC0vm-RmH2VYW3Kn)
+[Τερματίζω Όλα Τα Granny! (FULL GAMES)]
 - 🔗 [Μάντεψε Τον YOUTUBER Από Τα Συμπτώματα!] -> (https://youtu.be/zEAjcSflEYQ?si=oOeeFXNTusEqZfoD)
+[Μάντεψε Τον YOUTUBER Από Τα Συμπτώματα!]
 - 🔗 [Τερματίζω Το Slender: The Arrival! (FULL GAME)] -> (https://youtu.be/HK8guERGKdc?si=eICXw6z5_et03GtS)
+[Τερματίζω Το Slender: The Arrival! (FULL GAME)]
 - 🔗 [ΕΦΤΙΑΞΑ ΤΗΝ ΔΙΚΗ ΜΟΥ ΕΝΟΧΛΗΤΙΚΗ ΠΙΣΤΑ ΣΤΟ FALL GUYS!] -> (https://youtu.be/SfH1N4I6Hq4?si=FZUQHoZ62sy3QB_t)
+[ΕΦΤΙΑΞΑ ΤΗΝ ΔΙΚΗ ΜΟΥ ΕΝΟΧΛΗΤΙΚΗ ΠΙΣΤΑ ΣΤΟ FALL GUYS!]
 
 ─────────────────────────────────────────────────────────────────────────────────────────
    ## 📱 [Youtube Channel - Shorts - W1ndz] -> https://www.youtube.com/@W1ndzOfficial 
