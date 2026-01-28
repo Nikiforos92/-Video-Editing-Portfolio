@@ -78,67 +78,67 @@
 ─────────────────────────────────────────────────────────────────────────────────────────
    ## 📱 [Youtube Channel - Shorts - W1ndz] -> https://www.youtube.com/@W1ndzOfficial 
    
-- 🔗 [Περίεργα Games Part 1] -> (https://www.youtube.com/shorts/Du8wDcpUHXM)
+- 🔗 [Weird Games Part 1] -> (https://www.youtube.com/shorts/Du8wDcpUHXM)
 🇬🇷 Title : [Περίεργα Games Part 1]
 
-- 🔗 [Περίεργα Games Part 2] -> (https://www.youtube.com/shorts/SkBGwehUN1Q)
+- 🔗 [Weird Games Part 2] -> (https://www.youtube.com/shorts/SkBGwehUN1Q)
 🇬🇷 Title : [Περίεργα Games Part 2]
 
-- 🔗 [ΜΗΝ παίξεις αυτό το παιχνίδι! 😮] -> (https://youtu.be/3ft_zTHY0LM?si=Yi7fQfHw7RckpCJL)
+- 🔗 [Don’t Play This Game! 😮] -> (https://youtu.be/3ft_zTHY0LM?si=Yi7fQfHw7RckpCJL)
 🇬🇷 Title : [ΜΗΝ παίξεις αυτό το παιχνίδι! 😮]
 
-- 🔗 [ΕΦΤΙΑΞΑ ΤΗΝ ΠΙΟ ΔΥΣΚΟΛΗ ΠΙΣΤΑ!] -> (https://www.youtube.com/shorts/WjEAYUF72UQ)
+- 🔗 [I Made the Hardest Level Ever!] -> (https://www.youtube.com/shorts/WjEAYUF72UQ)
 🇬🇷 Title : [ΕΦΤΙΑΞΑ ΤΗΝ ΠΙΟ ΔΥΣΚΟΛΗ ΠΙΣΤΑ!] 
 
-- 🔗 [Βαθμολογώ Special Skins Στο Stumble Guys] -> (https://www.youtube.com/shorts/sDA0umQlApU)
+- 🔗 [Rating Special Skins in Stumble Guys!] -> (https://www.youtube.com/shorts/sDA0umQlApU)
 🇬🇷 Title : [Βαθμολογώ Special Skins Στο Stumble Guys]
 
-- 🔗 [Ο Πιο ΠΕΡΙΕΡΓΟΣ Ιός! 🤣] -> (https://www.youtube.com/shorts/37fU5ydlpFg)
+- 🔗 [The Weirdest Virus Ever!" 🤣] -> (https://www.youtube.com/shorts/37fU5ydlpFg)
 🇬🇷 Title : [Ο Πιο ΠΕΡΙΕΡΓΟΣ Ιός! 🤣]
 
 - 🔗 [50.000.000$ Ferrari 💸] -> (https://www.youtube.com/shorts/XV_TKvZyg8Q)
 🇬🇷 Title : [50.000.000$ Ferrari 💸]
 
-- 🔗 [Απαγορευμένα Games] -> (https://www.youtube.com/shorts/ZSlyhAhnovs)
+- 🔗 [Forbidden Games] -> (https://www.youtube.com/shorts/ZSlyhAhnovs)
 🇬🇷 Title : [Απαγορευμένα Games]
 
 ─────────────────────────────────────────────────────────────────────────────────────────
   ## 📱 [Youtube Channel - W1ndzIRL] -> https://www.youtube.com/@W1ndzIRL
   
-- 🔗 [Τα Πιο Ρεαλιστικά Γλυκά Σοκολάτας!] -> (https://youtu.be/sM2vbiiE-nk?si=tl4ha-J0zzYkFjF7)
+- 🔗 [The Most Realistic Chocolate Sweets!] -> (https://youtu.be/sM2vbiiE-nk?si=tl4ha-J0zzYkFjF7)
 🇬🇷 Title : [Τα Πιο Ρεαλιστικά Γλυκά Σοκολάτας!]
 
 ─────────────────────────────────────────────────────────────────────────────────────────
   ## 📱 [Youtube Channel - More W1ndz] -> https://www.youtube.com/@MoreW1ndz
 
-- 🔗 [Αυτό το ENTITY μας παρακολουθεί... The Smiler] -> (https://www.youtube.com/watch?v=vufyLcvBN9k)
+- 🔗 [This ENTITY Is Watching Us… The Smiler] -> (https://www.youtube.com/watch?v=vufyLcvBN9k)
 🇬🇷 Title : [Αυτό το ENTITY μας παρακολουθεί... The Smiler]
 
-- 🔗 [Η Σκοτείνη Πλευρά του Θεού...The God] -> (https://www.youtube.com/watch?v=9VaeksfqarM)
+- 🔗 [The Dark Side of God… The God] -> (https://www.youtube.com/watch?v=9VaeksfqarM)
 🇬🇷 Title : [Η Σκοτείνη Πλευρά του Θεού...The God]
 
-- 🔗 [Αυτές οι ΣΠΗΛΙΕΣ κρύβουν κάτι ΣΚΟΤΕΙΝΟ..] -> (https://www.youtube.com/watch?v=dxxhVgo1_bw)
+- 🔗 [These Caves Hide Something Dark…] -> (https://www.youtube.com/watch?v=dxxhVgo1_bw)
 🇬🇷 Title : [Αυτές οι ΣΠΗΛΙΕΣ κρύβουν κάτι ΣΚΟΤΕΙΝΟ..]
 
-- 🔗 [Ένα Φρικιαστικό ENTITY ζει εδώ..The Abberation] -> (https://www.youtube.com/watch?v=vzzdsjtE3sk)
+- 🔗 [A Horrifying ENTITY Lives Here… The Abberation] -> (https://www.youtube.com/watch?v=vzzdsjtE3sk)
 🇬🇷 Title : [Ένα Φρικιαστικό ENTITY ζει εδώ..The Abberation]
 
-- 🔗 [99 Nights In The Forest στο Minecraft] -> (https://www.youtube.com/watch?v=Ogou2qiYcUI)
+- 🔗 [99 Nights in the Forest – Minecraft"] -> (https://www.youtube.com/watch?v=Ogou2qiYcUI)
 🇬🇷 Title : [99 Nights In The Forest στο Minecraft]
 
-- 🔗 [Αυτός ο Κόσμος είναι ΜΟΛΥΣΜΈΝΟΣ από.. ENTITIES!] -> (https://www.youtube.com/watch?v=NvxhR_gan3Y)
+- 🔗 [This World Is INFESTED with… ENTITIES!] -> (https://www.youtube.com/watch?v=NvxhR_gan3Y)
 🇬🇷 Title : [Αυτός ο Κόσμος είναι ΜΟΛΥΣΜΈΝΟΣ από.. ENTITIES!]
 
-- 🔗 [Επιβιώσαμε με Horror Mods στο Minecraft One Block] -> (https://www.youtube.com/watch?v=ZpDS1-YSbB4)
+- 🔗 [Surviving with Horror Mods in Minecraft One Block!] -> (https://www.youtube.com/watch?v=ZpDS1-YSbB4)
 🇬🇷 Title : [Επιβιώσαμε με Horror Mods στο Minecraft One Block]
 
-- 🔗 [Αυτό το ENTITY παριστάνει...ΕΜΕΝΑ?] -> (https://www.youtube.com/watch?v=aKFxKpwAWw0)
+- 🔗 [ΑThis ENTITY Is Pretending to Be… ME?!] -> (https://www.youtube.com/watch?v=aKFxKpwAWw0)
 🇬🇷 Title : [Αυτό το ENTITY παριστάνει...ΕΜΕΝΑ?]
 
-- 🔗 [Η ΜΑΧΗ με το WENDIGO με έφτασε στα ΟΡΙΑ ΜΟΥ] -> (https://www.youtube.com/watch?v=yRY_6jxGOWA)
+- 🔗 [Fighting the WENDIGO Pushed Me to My Limits!] -> (https://www.youtube.com/watch?v=yRY_6jxGOWA)
 🇬🇷 Title : [Η ΜΑΧΗ με το WENDIGO με έφτασε στα ΟΡΙΑ ΜΟΥ]
 
-- 🔗 [Μοιάζει με ΑΝΘΡΩΠΟ αλλά είναι.. ΤΕΡΑΣ!] -> (https://www.youtube.com/watch?v=-CBZYtT3pr8)
+- 🔗 [It Looks Like a Human… But It’s a MONSTER!] -> (https://www.youtube.com/watch?v=-CBZYtT3pr8)
 🇬🇷 Title : [Μοιάζει με ΑΝΘΡΩΠΟ αλλά είναι.. ΤΕΡΑΣ!]
 
 ─────────────────────────────────────────────────────────────────────────────────────────
