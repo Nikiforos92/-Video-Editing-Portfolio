@@ -78,28 +78,28 @@
 ─────────────────────────────────────────────────────────────────────────────────────────
    ## 📱 [Youtube Channel - Shorts - W1ndz] -> https://www.youtube.com/@W1ndzOfficial 
    
-- 🔗 [Weird Games Part 1] -> (https://www.youtube.com/shorts/Du8wDcpUHXM)
+- 🔹 [Weird Games Part 1] -> (https://www.youtube.com/shorts/Du8wDcpUHXM) 
 🇬🇷 Title : [Περίεργα Games Part 1]
 
-- 🔗 [Weird Games Part 2] -> (https://www.youtube.com/shorts/SkBGwehUN1Q)
+- 🔹 [Weird Games Part 2] -> (https://www.youtube.com/shorts/SkBGwehUN1Q)
 🇬🇷 Title : [Περίεργα Games Part 2]
 
-- 🔗 [Don’t Play This Game! 😮] -> (https://youtu.be/3ft_zTHY0LM?si=Yi7fQfHw7RckpCJL)
+- 🔹 [Don’t Play This Game! 😮] -> (https://youtu.be/3ft_zTHY0LM?si=Yi7fQfHw7RckpCJL)
 🇬🇷 Title : [ΜΗΝ παίξεις αυτό το παιχνίδι! 😮]
 
-- 🔗 [I Made the Hardest Level Ever!] -> (https://www.youtube.com/shorts/WjEAYUF72UQ)
+- 🔹 [I Made the Hardest Level Ever!] -> (https://www.youtube.com/shorts/WjEAYUF72UQ)
 🇬🇷 Title : [ΕΦΤΙΑΞΑ ΤΗΝ ΠΙΟ ΔΥΣΚΟΛΗ ΠΙΣΤΑ!] 
 
-- 🔗 [Rating Special Skins in Stumble Guys!] -> (https://www.youtube.com/shorts/sDA0umQlApU)
+- 🔹 [Rating Special Skins in Stumble Guys!] -> (https://www.youtube.com/shorts/sDA0umQlApU)
 🇬🇷 Title : [Βαθμολογώ Special Skins Στο Stumble Guys]
 
-- 🔗 [The Weirdest Virus Ever!" 🤣] -> (https://www.youtube.com/shorts/37fU5ydlpFg)
+- 🔹 [The Weirdest Virus Ever!" 🤣] -> (https://www.youtube.com/shorts/37fU5ydlpFg)
 🇬🇷 Title : [Ο Πιο ΠΕΡΙΕΡΓΟΣ Ιός! 🤣]
 
-- 🔗 [50.000.000$ Ferrari 💸] -> (https://www.youtube.com/shorts/XV_TKvZyg8Q)
+- 🔹 [50.000.000$ Ferrari 💸] -> (https://www.youtube.com/shorts/XV_TKvZyg8Q)
 🇬🇷 Title : [50.000.000$ Ferrari 💸]
 
-- 🔗 [Forbidden Games] -> (https://www.youtube.com/shorts/ZSlyhAhnovs)
+- 🔹 [Forbidden Games] -> (https://www.youtube.com/shorts/ZSlyhAhnovs)
 🇬🇷 Title : [Απαγορευμένα Games]
 
 ─────────────────────────────────────────────────────────────────────────────────────────
@@ -132,7 +132,7 @@
 - 🔗 [Surviving with Horror Mods in Minecraft One Block!] -> (https://www.youtube.com/watch?v=ZpDS1-YSbB4)
 🇬🇷 Title : [Επιβιώσαμε με Horror Mods στο Minecraft One Block]
 
-- 🔗 [ΑThis ENTITY Is Pretending to Be… ME?!] -> (https://www.youtube.com/watch?v=aKFxKpwAWw0)
+- 🔗 [This ENTITY Is Pretending to Be… ME?!] -> (https://www.youtube.com/watch?v=aKFxKpwAWw0)
 🇬🇷 Title : [Αυτό το ENTITY παριστάνει...ΕΜΕΝΑ?]
 
 - 🔗 [Fighting the WENDIGO Pushed Me to My Limits!] -> (https://www.youtube.com/watch?v=yRY_6jxGOWA)
