@@ -34,6 +34,18 @@ Below you can find **selected video projects** showcasing my work in **YouTube G
 - 🔗 [ΕΦΤΙΑΞΑ ΤΗΝ ΔΙΚΗ ΜΟΥ ΕΝΟΧΛΗΤΙΚΗ ΠΙΣΤΑ ΣΤΟ FALL GUYS!] -> (https://youtu.be/SfH1N4I6Hq4?si=FZUQHoZ62sy3QB_t)
 
 ────────────────────────────────────────────────────────────────────────────────────────────────────────
+   ## 📱 [Youtube Channel - Shorts - W1ndz] -> https://www.youtube.com/@W1ndzOfficial 
+   
+- 🔗 [Περίεργα Games Part 1] -> (https://www.youtube.com/shorts/Du8wDcpUHXM)
+- 🔗 [Περίεργα Games Part 2] -> (https://www.youtube.com/shorts/SkBGwehUN1Q)
+- 🔗 [ΜΗΝ παίξεις αυτό το παιχνίδι! 😮] -> (https://youtu.be/3ft_zTHY0LM?si=Yi7fQfHw7RckpCJL)
+- 🔗 [ΕΦΤΙΑΞΑ ΤΗΝ ΠΙΟ ΔΥΣΚΟΛΗ ΠΙΣΤΑ!] -> (https://www.youtube.com/shorts/WjEAYUF72UQ)
+- 🔗 [Βαθμολογώ Special Skins Στο Stumble Guys] -> (https://www.youtube.com/shorts/sDA0umQlApU)
+- 🔗 [Ο Πιο ΠΕΡΙΕΡΓΟΣ Ιός! 🤣] -> (https://www.youtube.com/shorts/37fU5ydlpFg)
+- 🔗 [50.000.000$ Ferrari 💸] -> (https://www.youtube.com/shorts/XV_TKvZyg8Q)
+- 🔗 [Απαγορευμένα Games] -> (https://www.youtube.com/shorts/ZSlyhAhnovs)
+
+────────────────────────────────────────────────────────────────────────────────────────────────────────
   ## 📱 [Youtube Channel - W1ndzIRL] -> https://www.youtube.com/@W1ndzIRL
   
 - 🔗 [Τα Πιο Ρεαλιστικά Γλυκά Σοκολάτας!] -> (https://youtu.be/sM2vbiiE-nk?si=tl4ha-J0zzYkFjF7)
