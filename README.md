@@ -141,9 +141,19 @@
 - 🔗 [It Looks Like a Human… But It’s a MONSTER!](https://www.youtube.com/watch?v=-CBZYtT3pr8)
 🇬🇷 Title : [Μοιάζει με ΑΝΘΡΩΠΟ αλλά είναι.. ΤΕΡΑΣ!]
 
+- 🔗 [The Smiler is watching us...](https://www.youtube.com/watch?v=vufyLcvBN9k)
+🇬🇷 Title : [Αυτό το ENTITY μας παρακολουθεί... The Smiler]
+
+- 🔗 [These entities lurk in the rain...](https://www.youtube.com/watch?v=6nA06l63SOo)
+🇬🇷 Title : [Αυτά τα ENTITY κρύβονται στην Βροχή...]
 ─────────────────────────────────────────────────────────────────────────────────────────
+ ## 📱 [Youtube Channel - W1ndzBlox](https://www.youtube.com/@W1ndzBlox)
 
+- 🔗 [Escape the lava and rescue the secret brainrots!](https://www.youtube.com/watch?v=pAXZXt1ye9Y)
+🇬🇷 Title : [ΞΕΦΥΓΕ από την LAVΑ και σώσε τα ΜΥΣΤΙΚΑ BRAINROTS!]
 
+- 🔗 [Rescue the most secret brainrots from the police!](https://www.youtube.com/watch?v=nKQyi80vplw)
+🇬🇷 Title : [ΣΩΣΕ από την ΑΣΤΥΝΟΜΙΑ τα πιο ΜΥΣΤΙΚΑ BRAINROT!]
 
 
 
